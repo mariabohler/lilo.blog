@@ -34,3 +34,5 @@ Die einfache Antwort ist ja, Strom betriebene Autos verursachen keinen Schaden b
 ##### *Peter Messerli (Wyss Academy Bern)* 
 
 ![]()
+
+Die E-Autos wurden der Gesellschaft vorgestellt und viele haben deren alte Fahrzeuge auf neue, Strombetriebene gewechselt.  Herr Wyss fasste diesen Rebound Effekt am Beispiel des VW-Käfers zusammen. Zu seiner Zeit wurden diese extrem gut verkauft und waren im Trend, paar Jahre später hat man diese Komplett vergessen. So könnte die Zukunft der E-Autos ebenfalls aussehen. Die Idee hinter dieser Art des Treibstoffes ist brillant, doch leider fehlt noch die Technik, um es komplett umweltfreundlich zu gestalten. Sollten wir uns in den Fall von diesen Autos verabschieden und wieder zu Fossilen Brennstoff Autos greifen? Das ist natürlich die eigene Entscheidung von jeden einzig und allein. Die E-Autos scheinen aber trotzdem nur eine vorrübergehende Lösung zu sein- dazu    sogar eine schlechte.
